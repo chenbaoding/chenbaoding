@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Yayuan。
+- 👀 I’m interested in anime。
+- 🌱 I’m currently learning FE.
+- 📫 How to reach me QQ:785522834
